@@ -16,7 +16,7 @@
 
 **JK I LOVE YOU MUM**
 
-## Links to some cool stuff mwahaha
+## Links to some cool stuff MWAHAHA
 
 A [link to the best song ever](https://www.youtube.com/watch?v=MtN1YnoL46Q)!
 
