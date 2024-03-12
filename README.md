@@ -18,6 +18,6 @@
 
 ## Links to some cool stuff MWAHAHA
 
-A [link to the best song ever](https://www.youtube.com/watch?v=MtN1YnoL46Q)!
+[A link to the best song ever](https://www.youtube.com/watch?v=MtN1YnoL46Q)!!!!
 
-A [link to the best website ever](https://www.dictionary.com/e/slang/deez-nuts/)!
+[A link to the best website ever](https://www.dictionary.com/e/slang/deez-nuts/)!!!!
